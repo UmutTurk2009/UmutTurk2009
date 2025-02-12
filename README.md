@@ -1,6 +1,6 @@
 ## Hi there 👋
 
-# 💻 **Selam,Ben Torbalı Bilişim Bölümü** 👑
+# 💻 **Selam,UmutTurk2009** 👑
 
 ![](https://media.giphy.com/media/26gR1BESPOFdcFwF6/giphy.gif)
 
